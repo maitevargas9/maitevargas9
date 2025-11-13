@@ -1,5 +1,5 @@
-- 👋 Hi there, I’m @maitevargas9 👀
-- I’m passionate about exploring new things and learning every day.
+- 👋 Hi there, I’m @maitevargas9
+- 👀 I’m passionate about exploring new things and learning every day.
 - 🍝🥘🍰 I love cooking and baking — there’s something so rewarding about creating delicious food from scratch.
 - ✈️🗿🗽 Traveling is one of my biggest joys — discovering new places, experiencing different cultures, and trying local dishes inspire me.
 - 📚 I’m also an avid reader who loves getting lost in a good book.
